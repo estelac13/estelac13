@@ -8,4 +8,6 @@ How to Learn Math For Students de Stanford, e cursando o 3 ano do ensino médio.
 chamarem atenção, gosto de desafio
 - 🤔 Gostaria de qualquer ajuda em web desenvolvimento, e também em desenvolvimento
 de jogos utilizando Phyton
-- 📫 Entre em contato comigo: LinkedIn: https://www.linkedin.com/in/estela-caprini-3884841b4
+- 📫 Entre em contato comigo: 
+- LinkedIn: https://www.linkedin.com/in/estela-caprini-3884841b4
+- Redes sociais: todas @estelacaprini
